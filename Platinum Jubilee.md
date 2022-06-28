@@ -1,13 +1,9 @@
+# Platinum Jubilee
+
 Celebrated in the United Kingdom and by British citizens around the world, the Queen’s Platinum Jubilee has been an ongoing celebration of the long reign [1] of Queen Elizabeth II. The name ‘platinum’ may strike some as odd, but believe it or not, the term descends from a long tradition of associating various anniversaries with precious metals and other rare goods. In today’s article, we’ll explore the story of these associations as well as Queen Elizabeth II’s personal celebration.
-
-
 
 Associations between anniversaries and certain objects date back to classical Greek and Roman times. In those days, anniversaries often indicated long and prosperous lives, with more and more precious items being gifted later in life. These traditions have lasted to today, with the most common being Silver representing 25 years, Golden representing 50 years, Platinum at 70, and Diamond at 75. These precious items can indicate the passage of happy and sad events, such as weddings, funerals, or even the foundation of a company.
 
-
-
 Elizabeth II’s 70-year reign has been extensive, with a grand coronation [2] in February of 1953. She is the longest-living Queen and has faced numerous crises as head of state. Throughout the events of her Platinum Jubilee, commenters have spoken about the challenges Britain has faced during her rule, ranging from the collapse of the Soviet Union to the shocking death of Princess Diana. 
-
-
 
 Though the Jubilee has been a spectacular display of wealth and power, it has also raised serious questions about the future of the Royal Family. Sentiment against the monarchy has increased greatly in recent years– outside of Britain and a few nations such as Australia and New Zealand, the Royal Family has come to represent an ugly historical past, which young generations are eager to forget. After this successful holiday ends, the world will be left to contemplate [3] the future of the world’s most famous monarchy.
